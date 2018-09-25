@@ -10,6 +10,5 @@
 
 ## Objectives 
 
-In this instructional article, I will thoroughly explain how to prep cornish hen houses for Tyson Foods. 
-After much deliberation, I have decided to write an instructional document on how to raise cornish hen chickens for Tyson Foods. I have experience raising chickens for Tysons, and I believe that with my personal experience in the industry, I can create an instructional document for people who are just starting out in the poultry industry. My audience that I will try to captivate will be people who are just starting out in the business or people who might want to have a career in this field. 
- 
+In this instructional article, I will thoroughly explain how to prep cornish hen houses for Tyson Foods. The article will consist of a step by step proccess illustrating the important tasks that must be performed in order to recieve baby chickens for Tysons. This article is designed for people who are interested in learning how commercial poultry operations operate or for people who intend to get into the business and want to learn the different aspects of prepping the poultry houses.
+
