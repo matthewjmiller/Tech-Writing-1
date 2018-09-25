@@ -33,6 +33,9 @@ The equipment needed consists of:
 
 **Step One:** Within 24 hours of selling the cornish hens, the litter must be rolled into three windrows by using the tractor and the rear blade attachment. Before windrowing the litter, it is important to clean out the four corners of the poultry house by using the front end loader. This is because the rear blade simply can't clean out the corners. By windrowing the litter, all of the diseases and bacteria that may have developed from the previous batch of chickens will be killed from the internal heat, which ensures a healthy litter bed for the new batch of chickens. After four to five days, the windrows must be turned in order to kill any bacteria that may remain on the surface of the rows.
 
+![Wind rowwing](https://poultryhealthtoday.com/wp-content/uploads/2016/06/Windrowing-tractor-cr-335x300.png)
+![Aeriating the litter](https://www.priefert.com/portal/assets/other/products/product/picturesthumbs/Chicken%20House_11_2004.jpg)
+
 **Step Two:** After eight days, the litter needs to be aeriated with the Priefert litter saver attachment to mulch up any large clumps of litter and create a more disired bedding substrate. After each windrow is slowly aeriated, the floors need to be leveled out evenly by using the rear blade attachment. After leveling out the bedding material, you are now ready for the next step.
 
 **Step Three:** Once all of the bedding material is leveled out, you can start lowering all of the equipment in the houses (stoves, forced air heaters, feed/water lines, etc.) After the equipment is lowered, all of the stoves and fans need to be washed by using the power washer and the 330 gallon cube. It is important to powerwash this equipment because throughout each batch of chickens, dust accumulates which can cause equipment to malfunction. Once all of the equipment is eradicated of all of the accumulated dust, you are ready for the next step.
