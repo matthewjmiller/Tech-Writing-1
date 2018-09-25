@@ -36,4 +36,4 @@ The equipment needed consists of:
 
 **Step Three:** Once all of the bedding material is leveled out, you can start lowering all of the equipment in the houses (stoves, forced air heaters, feed/water lines, etc.) After the equipment is lowered, all of the stoves and fans need to be washed by using the power washer and the 330 gallon cube. It is important to powerwash this equipment because throughout each batch of chickens, dust accumulates which can cause equipment to malfunction. Once all of the equipment is eradicated of all of the accumulated dust, you are ready for the next step.
 
-**Step Four**
+**Step Four:**
