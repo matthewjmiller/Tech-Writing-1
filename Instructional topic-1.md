@@ -24,7 +24,6 @@ The equipment needed consists of:
 - General tools and equipment (wrenches, hammers, drills, etc.)
 - Food trays (found at poultry surplus stores)
 - Rolls of paper (supplied by Tysons)
-
 - Feed scoops, buckets, petition boards, propane torch
 - Power washer with 330 gallon cube tank to hold water
 - Other necessary equipment that might need to be replaced at the end of each batch (fan belts, feedline motors, etc.
@@ -63,7 +62,7 @@ Not only is the poultry industry is a billion dollar industry, but poultry farmi
 
 - **How long do you have to prepare for each batch of birds?**
 
--Generally you have around three weeks to prepare for each batch; however sometimes it can be shorter or longer depending on the demand.
+-Generally you have around three weeks to prepare for each batch; however, sometimes it can be shorter or longer depending on the demand.
 
 - **Have you had experience prepping cornish hen houses before?**
 
@@ -75,4 +74,4 @@ Not only is the poultry industry is a billion dollar industry, but poultry farmi
 
 - **How many chickens fit in one house?**
 
--Well it depends on the size of the chicken house that the farmer decides to biuld, but on our farm, each house holds around 36,000.
+-Well it depends on the size of the chicken house that the farmer decides to build, but on our farm, each house has a maximum capacity of 37,000.
