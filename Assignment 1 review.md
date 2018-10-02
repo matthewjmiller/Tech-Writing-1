@@ -1,0 +1,6 @@
+
+## Assignment 1 Review
+
+After completing the instructional document for assignment 1, I felt pretty good about the finished product considering this was my first project using github and markdown. I did my instructional document on how to prepare houses for cornish hens from Tysons. I grew up on a poultry farm and was able to use my knowledge from experience to help me complete the assignment. Even though I understood how to complete each task, it was a challenge to create an instructional document that thoroughly explained the topic so that my audience would fully grasp the subject. Overall, I felt as though I was able to present my points in a manner that explained the information clearly. However, I know for certain that their were probably some parts that were unclear or wasn't explained enough. 
+
+ It was also challenging to explain the task thoroughly in 1000 words. In order to explain the task in full, I could have explained different aspects of it differently and in more detail. Overall, I still felt good about the assignment and I now have a broader understanding on how to use markdown and github. I am still learning how to use certain aspects of it; however, I felt I learned valuable skills that have helped me become a better technical writer.
